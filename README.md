@@ -1,1 +1,1 @@
-# Herik-Kim-Thomas-PP
+# Henrik-Kim-Thomas-PP
